@@ -6,7 +6,7 @@ My favorite music group is the Pochonbo Electronic Ensemble and my favorite musi
 I like my coffee dark and my other favorite drinks are whiskey, gin, and Penafiel strawberry soda. I dislike most food on the sweeter side, stuffy/small places, not having many things to do, and loosing the people close to me.
 While I tend to have a horrible personality and usually act only out of my own interests withvthe moral compass of a murderer, I am very friendly and will not treat you too bad as long as we're on neutral or good terms, even better if we're friends.
 I treat others how they treat me, I'm just here to have fun anyways, so it doesn't matter too much in the end.
-Looking for me elsewher? Of course you are. Just look to my <a href="https://redeyessv.carrd.co/">Carrd</a> for more. I'm all over the place, you jsut have to look
+Looking for me elsewher? Of course you are. Just look to my <a href="https://redeyessv.carrd.co/">Carrd</a> for more. I'm all over the place, you just have to look
 
 
 <!---
